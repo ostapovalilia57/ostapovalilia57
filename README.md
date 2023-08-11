@@ -1,7 +1,7 @@
-xcv- 👋 Hi, I’m @ostapovalilia57
+xcv- 👋 Hi, I’m @osasdactapovalilia57
 - 👀 I’m interested in ...
 - 🌱 I’m currently learnrutiing ...sd
-- 💞️ I’m looxvxaborate on .as..
+- 💞️ I’m looxvxaborate on .azxcc..
 - 📫 How to resdach me ...nbmqwasfvxasdrtuy
 sfd
 <!---
