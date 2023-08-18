@@ -1,7 +1,7 @@
 scasxcv- 👋 Hi, I’m @osasdactapovalilia57
-- 👀 I’m interested in ...
+- 👀 I’m inzxcterested in ...
 - 🌱 I’m currently learnrutiing ...sd
-- 💞️ I’m looxvxaborate on .azxcc..
+- 💞️ I’m looxvxaborate on .azxcc.xcz.
 - 📫 How to resdach me ...nbmqwacvbиаsfvxasdrtuy
 миzcx
 <!---счм
