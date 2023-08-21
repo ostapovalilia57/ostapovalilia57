@@ -1,6 +1,6 @@
 scasxcv- 👋 Hi, I’m @osasdactapovalilia57
 - 👀 I’m inzxcterested in ...
-- 🌱 I’m currently learnrutiing ...sd
+- 🌱 I’m currently learnrutiincg ..czxc.zxczxsd
 - 💞️ I’m looxvxaborate on .azxcc.xcz.
 - 📫 How to resdach me ...nbmqwacvbиаsfvxasdrtuy
 миzcx
