@@ -1,7 +1,7 @@
 scasxvccv- 👋 Hi, I’m @osasdactcxzczxczxczxcapovalilia57vcvxzczxcxzc
 - 👀 I’m inzxcterested in ..cvb.
 - 🌱 I’m currently learnrutiincg ..czxc.zxczxsdsdfcvxzzxczxczxc
-- 💞️ I’m looxvxaborate on .azxcc.xcz.
+- 💞️ I’m looxvxaborate on .azxcc.xcz.lh
 - 📫 How tobcvbчсмчсм
 <!---счміваіваваіваіsdsdfsdfsdasdfasdf
 ostapovalilia57/ostapovalilia57 is a ✨ special ✨ repository because its gfsd`READxzcmd` (thxiasds file) appears on your GitHub profile.sadads
