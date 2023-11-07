@@ -1,5 +1,5 @@
 scasxvccv- 👋 Hi, I’m @osasdactcxzczxczxczxcapovalilia57vcvxфівіaSASc cxvфвфzczxcxzcфівівфfdsfdf
-- 👀 I’m inzxcterested in .лпо.cvbgkhjjasdxzk
+- 👀 I’m inzxcterested ij,vhgn .лпо.cvbgkhjjasdxzk
 - 🌱 I’m currently learnrutiincg sadcx..czxc.zxczxsdsdfcvxzzxczxczxc
 - 💞️ I’m looxvxaborate on .azxcc.xcz.lh
 - 📫 How tobcvbчсмчсм nmb
