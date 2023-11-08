@@ -1,4 +1,4 @@
-scasxvccv- 👋 Hi, I’m @osasdactcxzczxczxczxcapovalilia57vcvxфівіaSASc cxvфвфzczxcxzcфівівфfdsfdf
+scasxvccv- 👋 Hi, I’m @osasdactcxzczxczxczxcapovasdsadsadalilia57vcvxфівіaSASc cxvфвфzczxcxzcфівівфfdsfdf
 - 👀 I’m inzxcterested ij,vhgn .лпо.cvbgkhjjasdxzk
 - 🌱 I’m currently learnrutiincg sadcx..czxc.zxczxsdsdfcvxzzxczxczxc
 - 💞️ I’m looxvxaborate on .azxcc.xcz.lh
