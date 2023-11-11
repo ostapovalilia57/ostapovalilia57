@@ -1,6 +1,6 @@
 scasxvccv- 👋 Hi, I’m @osasdactcxzczxczxczxcapovasdsadsadalilia57vcvxфівіaSASc cxvфвфzczxcxzcфівівфfdsfdfggвавпвапмсчfd
 - 👀 I’m inzxcterested ij,vhgn .лпо.cvbgkhjjasdxzk
-- 🌱 I’m currently learnrutiincg sadcx..czxc.zxczxsdsdfcvxzzxczxczxc
+- 🌱 I’m currently learnrutiincg fadsfasdsadcx..czxc.zxczxsdsdfcvxzzxczxczxc
 - 💞️ I’m looxvxaborate on .azxcc.xcz.lh
 - 📫 How tobcvbчсмчсм nmb
 <!---счміваіваваіваіsdsdfsdfsdasdfasdf
