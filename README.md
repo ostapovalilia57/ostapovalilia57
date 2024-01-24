@@ -1,5 +1,5 @@
 vdsfdskkkscasxvccv- 👋 Hi, I’m faddascxasdzxczcxsashffdhfd@osjfghgjghjasdjghfaіфвjівфівіфвhgjkgfjhhasdsadasdsagjggh,hjksdash,kfyjadasdkgfjjklagfhfgaasdfajfgfhdfgfdfgsadsadfdsgfdsasdsadasdasddasdsadasdasdshhbkdasdвфіilia57vcsdfdsfdsfsrewrdsfvxsdфіdfsdfвіahkkmn,bhkasdsadasdghjgjasdasdasdsadasdasdSASc fdgdfgdfgasdsadsadhgiikgasdsdasdфівіфвcxvфвфzcsadasdasdzxcxzcфsdsdsdsвіsdsdasdasdsdsdвфfdasassfdsdfdsfdsfsdffggвавsdfdsfпвапмsadsaсчfd
-- 👀 I’m inzxcterested ij,vhgn .лпо.FERWERcvbgkhjjasdxzk
+- 👀 I’m inzxcterested ij,vhgn .лпо.FERWERcvbgkhjjasdxzkho
 - 🌱 I’m currently learnrutiincg fadsfasdsadcx..czxc.zxczxsdsdfcvxzzxczxczxфівіфіфвфівc
 - 💞️ I’m looxvxaborate on .azxcc.xcz.lh
 - 📫 How tobcvbчсмчсм nmb
